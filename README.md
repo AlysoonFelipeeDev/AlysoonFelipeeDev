@@ -5,7 +5,7 @@ Gosto de tecnologia, estou sempre em busca de aprender coisas novas e me conside
 
 ## 🌐 Redes Sociais
 
-[<img align="left" alt="HTML5" width="26px" src="https://simpleicons.org/icons/linkedin.svg"/>](https://www.linkedin.com/in/alyson-oz%C3%B3rio-b14b14324/)[<img align="left" alt="HTML5" width="26px" src="https://simpleicons.org/icons/instagram.svg"/>](https://www.instagram.com/)
+(https://www.instagram.com/)
 
 <br />
 <br />
