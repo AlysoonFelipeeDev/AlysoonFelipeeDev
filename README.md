@@ -6,7 +6,7 @@ Gosto de tecnologia, estou sempre em busca de aprender coisas novas e me conside
 ## 🌐 Redes Sociais
 
 (https://www.instagram.com/)
-(www.linkedin.com/in/alyson-ozório-b14b14324)
+(https://www.linkedin.com/in/alysonozorio/)
 
 <br />
 <br />
